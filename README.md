@@ -7,6 +7,6 @@ Me llamo John Buñay, me apasiona la programación, por que puedo crear solucion
 
 Gino Vera, estudiante de ingenieria en sisteemas en Ectotec
 
-Me llamo Andres Vallejo, estudio Ingenieria en sistemas, tengo 24 años, me gusta la manera de enseñar de los profesores de Ecotec
+Me llamo Andres Vallejo, estudio Ingenieria en sistemas, tengo 24 años, me gusta la manera de enseñar de los profesores de Ecotec, estoy por mi quinto semestre
 
 
