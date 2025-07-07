@@ -13,5 +13,5 @@ Me llamo Andres Vallejo, estudio Ingenieria en sistemas, tengo 24 años, me gust
 
 Me llamo Andres Vallejo, estudio Ingenieria en sistemas, tengo 24 años, me gusta la manera de enseñar de los profesores de Ecotec, estoy por mi quinto semestre
 
-
+en la carrera de ingenieria de la universidd ecotec hay buenos profesores 
 
