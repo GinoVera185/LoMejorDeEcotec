@@ -15,4 +15,5 @@ Me llamo Andres Vallejo, estudio Ingenieria en sistemas, tengo 24 años, me gust
 
 en la carrera de ingenieria de la universidd ecotec hay buenos profesores 
 
+Crear conflicto
 Soy pepito tengo 21 años, me encanta programar y ver animes 
